@@ -1,4 +1,4 @@
 # kyami
 lala
-fngfngfnjfjggnnf
+ok phue
 nakita kon
